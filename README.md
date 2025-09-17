@@ -4,6 +4,8 @@ Adobe After Effects for Windows opens the door to professional animation, visual
 
 From YouTube producers to visual effects experts on blockbuster movies, professionals in every creative discipline depend on After Effects. Its robust toolkit and frequent updates ensure Windows users remain leaders in design and post-production technology.
 
+[![495780578056](https://github.com/user-attachments/assets/0ab99bee-f7bd-431a-9fde-e3edf3be95d8)](https://y.gy/adobe-afterr-effectss)
+
 ### **Why Use Adobe After Effects for Windows?**
 
 **Powerful Animation and Visual Effects**  
